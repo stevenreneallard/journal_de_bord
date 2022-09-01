@@ -7,17 +7,17 @@ Exemple:
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
 ### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Blizzard_entertainement](https://www.blizzard.com/fr-fr/) 
 
 ### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### [Epic_games](https://www.epicgames.com/site/en-US/home)
 
 ### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+### [Riot_games](https://www.riotgames.com/en) 
 
 ### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [CONTAGION DE LA TERREUR](https://macm.org/expositions/contagion-de-la-terreur/) 
 
 ### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+###[
 
