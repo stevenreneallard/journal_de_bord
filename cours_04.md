@@ -14,6 +14,6 @@ Designeur graphique ou en d'autre mots professinel de la conception est quelue c
 ### Emploi 4 - Identification
 Le webdesigner est un professionnel créatif spécialisé dans le monde du multimédia et d’Internet plus particulièrement. Il définit l’interface visuelle, ergonomique et graphique de sites Internet. Il participe à leur création dans l’objectif de satisfaire la demande de clients et de faciliter l’expérience utilisateur. Ce travail requiert comme qualité de l'organisation, de la perséverance et d'être perfectioniste. Ce qui me plait le plus dans ce métier est l'aspect technologique qui est représenté par les maquettes construitent.
 ### Emploi 5 - Identification
-Le métier de photographe est un métier complexe qui requiert beaucoup de discipline et de talent. Il consiste a prendre des photos, monter des scènes et des décors, avoir de l'originalité, etc. Il est constitué de longues heures de travail
+Le métier de photographe est un métier complexe qui requiert beaucoup de discipline et de talent. Il consiste a prendre des photos, monter des scènes et des décors, avoir de l'originalité, etc. Toutça pendant de longues heures. Mon frère, étant photographe, est probablement la raison principle de pourquoi ce métier m'intéresse. C'est souvent un travail qui se fait seul, car la caméra se tiens par une personne. Par contre, celui-ci peut se faire en équipe pour certains shooting de compagnie ou autres.
 
 
